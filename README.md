@@ -1,4 +1,4 @@
-My name Sanjay Kumar
+I am Sanjay Kumar
 I have completed my PhD in Science from CSIR-Central Drug Research Institute, Lucknow, India in 2022.
 
 
